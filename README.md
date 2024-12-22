@@ -1,4 +1,4 @@
-Howdy, I'm Rae! The transfem wizrd! (not wizard)
+Howdy, I'm VUFUZZY!
 -------------------------------------------------------------------------------------------
 -I'm interested in programming (obviously), art, and I'm getting into composing music!
 
@@ -7,7 +7,7 @@ Howdy, I'm Rae! The transfem wizrd! (not wizard)
   
 -I'd love to collaborate on any projects I would be interested in! It helps with experience, and gets me better with doing stuff.
 
--You can reach me via Discord! Not much else right now. My user is raethewizrd.
+-You can reach me via Discord! Not much else right now. My user is vufuzzy.
 
 -My pronouns are She/Her
 
